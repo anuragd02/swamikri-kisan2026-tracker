@@ -1,0 +1,1 @@
+# swamikri-kisan2026-tracker
